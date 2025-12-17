@@ -9,9 +9,9 @@
     </br>
   <img align="center" src="https://imgur.com/hI1h2FM.png">
     </br>
-  <img align="center" src="https://i.imgur.com/by3h9h5.gif">
+  <img align="center" src="https://graphic.neocities.org/ff7.gif">
   <img align="center" src="https://komarev.com/ghpvc/?username=riisiingtiide&color=24d1ff&style=plastic&label=haaiii!!!&abbreviated=true">
-  <img align="center" src="https://f3verdream.carrd.co/assets/images/gallery01/55512e09.gif?v=125242f0">
+  <img align="center" src="https://f3verdream.carrd.co/assets/images/gallery01/09f70af6.gif?v=c7c39c46">
     </br>
     </br>
   <img align="center" src="https://imgur.com/xsyKvfl.gif">
