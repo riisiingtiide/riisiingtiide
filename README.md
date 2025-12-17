@@ -14,13 +14,14 @@
   <img align="center" src="https://f3verdream.carrd.co/assets/images/gallery01/55512e09.gif?v=125242f0">
     </br>
     </br>
-  <img align="left" src="https://f3verdream.carrd.co/assets/images/gallery01/37896cdc.gif?v=b7464855">
   <img align="center" src="https://imgur.com/xsyKvfl.gif">
-  <img align="right" src="https://f3verdream.carrd.co/assets/images/gallery01/679c0de8.gif?v=3631ebfb">
     </br>
+    </br>
+  <img align="right" src="https://f3verdream.carrd.co/assets/images/gallery01/679c0de8.gif?v=3631ebfb">
   <img align="center" src="https://gifcity.carrd.co/assets/images/gallery56/2c811c92.png?v=e3c0bc0f">
   <img align="center" src="https://gifcity.carrd.co/assets/images/gallery56/aef2f831.gif?v=e3c0bc0f">
   <img align="center" src="https://supplies.ju.mp/assets/images/gallery01/cc0a7214.png?v=1c1ba870">
+  <img align="left" src="https://f3verdream.carrd.co/assets/images/gallery01/37896cdc.gif?v=b7464855">
     </br>
   <img align="center" src="https://f3verdream.carrd.co/assets/images/gallery03/78efe066.png?v=c35eb199">
   <img align="center" src="https://f3verdream.carrd.co/assets/images/gallery03/fe685530.png?v=c35eb199">
