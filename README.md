@@ -13,8 +13,25 @@
   <img align="center" src="https://komarev.com/ghpvc/?username=riisiingtiide&color=24d1ff&style=plastic&label=haaiii!!!&abbreviated=true">
   <img align="center" src="https://f3verdream.carrd.co/assets/images/gallery01/09f70af6.gif?v=c7c39c46">
     </br>
+  <img align="left" width="100" src="https://img.pokemondb.net/sprites/home/normal/gyarados-mega.png">
   <img align="center" src="https://imgur.com/xsyKvfl.gif">
+  <img align="right" width="100" src="https://f3verdream.carrd.co/assets/images/gallery01/c7e77cac.png?v=7f0928a3">
     </br>
+  <i><sub>silence,</sub>
+  </br>
+  <sup>from the knife that softly severs</sup>
+  </br>
+  <sub>mistaken,</sub>
+  </br>
+  <sup>for an unsung prayer</sup>
+  </br>
+  <sub>now rising,</sub>
+  </br>
+  <sup>from the soundless deep, awaken</sup>
+  </br>
+  <sub>white fury,</sub>
+  </br>
+  <sup>burning indigo!</sup></i>
   <img align="right" src="https://f3verdream.carrd.co/assets/images/gallery01/679c0de8.gif?v=3631ebfb">
   <img align="left" src="https://f3verdream.carrd.co/assets/images/gallery01/37896cdc.gif?v=b7464855">
     </br>
