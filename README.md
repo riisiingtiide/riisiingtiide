@@ -25,7 +25,7 @@
     </br>
   <img align="center" src="https://imgur.com/xsyKvfl.gif">
     </br>
-  <i><b><sub>sdrifting,</sub>
+  <i><b><sub>drifting,</sub>
   </br>
   <sup>in the realm beyond all-knowing</sup>
   </br>
